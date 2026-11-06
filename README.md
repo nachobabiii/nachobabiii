@@ -17,7 +17,7 @@
 
 　　　　　 ⤷ 　　 ﹒　 　int   :　　 nuclear family stans  :  friends : mama ofc!  ♡
 
-　　　　　⌒  　dni. : shotacons :  nuclearcest shippers. : nacho weirdos : doubles : darkshippers.　 　⟡
+　　　　　⌒  　dni. : shotacons :  ageplayees : nacho weirdos : doubles : other cgs : darkshippers.　 　⟡
 
 　　　　　 (๑･ω･)　　baii　　⋌　　bai!!
 　﹒　
