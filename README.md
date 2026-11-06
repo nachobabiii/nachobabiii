@@ -1,23 +1,24 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=willskitteni&color=e84165&label=Pr3tty+Deaths!)
+![](https://komarev.com/ghpvc/?username=willskitteni&color=FFF5E3&label=crayons!)
 
-<img width="627" height="727" alt="image" src="https://github.com/user-attachments/assets/4ab7bbd2-ab70-41df-b7ba-b18a880289ff" />
+<img width="4032" height="3024" alt="image" src="https://github.com/user-attachments/assets/7ceb2618-c3c4-44d3-860f-3d840cba93c5" />
 
 
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f0cadb&center=true&width=435&lines=%E2%80%98Girls+Know+How+To+Fight!%E2%80%99"/> </p>
 
- 𓏲⠀ ：ྀི   mimi   '  pr3ttypriincess ⠀ ̣̣̣ ͜𓏫
- ⠀⠀⠀  ۪    𓏼 ͜͜✚     ⠀ᛝ⠀    .     he╱she/love⠀! ⠀⠀⠀⠀.
+ 𓏲⠀ ：ྀི   mimi   '  nacho ⠀ ̣̣̣ ͜𓏫
+ ⠀⠀⠀  ۪    𓏼 ͜͜✚     ⠀ᛝ⠀    .     he╱she/pup⠀! ⠀⠀⠀⠀.
 
- ⠀⠀⠀⠀⠀⠀⠀：pr3ttypriincess kinner⠀　𓏴⠀ ⁰⁰ ⁰⁰
+ ⠀⠀⠀⠀⠀⠀⠀：nacho babi⠀　𓏴⠀ ⁰⁰ ⁰⁰
            
- ּ֯ .  c00lpriincess matching acc. ꒰ ᧔ෆ᧓ ꒱
+ ּ֯ .  nacho agere account . ꒰ ᧔ෆ᧓ ꒱
 
-　　　　　 ⤷ 　　 ﹒　 　int   :　　 pr3ttypriincess stans  :  friends : c00l and Bluu ofc!  ♡
+　　　　　 ⤷ 　　 ﹒　 　int   :　　 nuclear family stans  :  friends : mama ofc!  ♡
 
-　　　　　⌒  　dni. :  4skn fandom :  c00lcest shippes. : mafioso x pr3tty shippers : doubles.　 　⟡
+　　　　　⌒  　dni. : shotacons :  nuclearcest shippers. : nacho weirdos : doubles : darkshippers.　 　⟡
 
 　　　　　 (๑･ω･)　　baii　　⋌　　bai!!
 　﹒　
+<img width="4032" height="3024" alt="image" src="https://github.com/user-attachments/assets/e389dcb0-6935-4c30-b69b-8b9d4aa3fcdd" />
