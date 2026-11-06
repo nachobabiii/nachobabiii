@@ -6,7 +6,7 @@
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f0cadb&center=true&width=435&lines=%E2%80%98Girls+Know+How+To+Fight!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f0cadb&center=true&width=435&lines=%E2%80%98milk+bottles!%E2%80%99"/> </p>
 
  𓏲⠀ ：ྀི   mimi   '  nacho ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜✚     ⠀ᛝ⠀    .     he╱she/pup⠀! ⠀⠀⠀⠀.
